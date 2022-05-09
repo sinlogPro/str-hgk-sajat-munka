@@ -1,0 +1,1 @@
+# str-hgk-sajat-munka
